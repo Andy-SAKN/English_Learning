@@ -49,7 +49,7 @@
 以下两个视频是我主要的写作学习资料，建议重点观看：
 
 - [【托福写作】综合写作高分技巧详解（BV1XA411A7yi）](https://www.bilibili.com/video/BV1XA411A7yi/?spm_id_from=333.1391.0.0&vd_source=2347c699c40e3a971470bde33b0f40de)
-- [【托福写作】独立写作结构与模版分析（BV1PP411v7rc）](https://www.bilibili.com/video/BV1PP411v7rc/?spm_id_from=333.1391.0.0&p=2)
+- [【托福写作】学术讨论写作结构与模版分析（BV1PP411v7rc）](https://www.bilibili.com/video/BV1PP411v7rc/?spm_id_from=333.1391.0.0&p=2)
 
 ---
 
